@@ -60,4 +60,5 @@ DATE; ?????????/ also 2 years ago. If u recognise this drawing from that SPECIFI
 
 DATE; ?????? 2 years ago too. for an old friend i dont talk anymore. again, if u recognise this drawing DNI.
 <img width="550" height="815" alt="Untitled487" src="https://github.com/user-attachments/assets/69bdde3f-82da-4541-9d89-90fb50b1d428" />
-
+-
+HALF OF THESE WERE ALL WIPS. DUE TO MY PHONE BEING BROKEN I WAS UNFORTUNATELY UNABLE TO FINISH ALL OF THEM. (╥﹏╥)
