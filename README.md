@@ -53,6 +53,23 @@ DATE; ???? This was on halloween in 2025
 VAMPIRE SPY BLEHBLEHBELHHH!!
 <img width="459" height="918" alt="VAMPIE SPY" src="https://github.com/user-attachments/assets/81d51c07-f6be-4021-8be1-bd679f60c037" />
 - 
+DATE; ???? IDK
+<img width="512" height="466" alt="i missmy phone" src="https://github.com/user-attachments/assets/680ede13-1f87-4ac1-a275-83e68031448b" />
+drew this in my computer to mourn my broken phone sobs. Also drew my friends broken ipad so we could mourn together
+-
+
+DATE; Idk either. very old. was drew in 2025
+<img width="556" height="476" alt="MERAMUS" src="https://github.com/user-attachments/assets/a18f4d00-89a5-4169-b84e-31e243ddc9c7" />
+also drew in my pc. i love merasmus drools heh
+-
+
+DATE; idk too. was drawn in 2025 too
+<img width="536" height="573" alt="SPY IN FRENCH REVOLUTION" src="https://github.com/user-attachments/assets/bca471e8-073a-4008-87a9-9cd846658163" />
+-
+
+DATE; ???? 2025 too
+<img width="1152" height="648" alt="spy crab" src="https://github.com/user-attachments/assets/ef22255d-baa5-4e31-a1ea-e53ce4f586e1" />
+first ever drawing i did in my pc. SPOI CRAB!!!!!!!!
 
 DATE; ????? This was 2 years ago
 <img width="689" height="919" alt="IMG_20240909_055915" src="https://github.com/user-attachments/assets/45b2ef70-85fc-43dc-ba90-60aa71667df3" />
