@@ -88,5 +88,5 @@ HALF OF THESE WERE ALL WIPS. DUE TO MY PHONE BEING BROKEN I WAS UNFORTUNATELY UN
 as you can see my artstyle kinda changes a lot. My artstyle changes depending on the mood of the drawing. There was supposed to be more drawings here but oh well, my phone broke and my phone contained all of the drawings I had. Had to dig real hard on discord to find some of my drawings i sent to my friends lol. I also only use a mouse for all of my drawings in my pc
 -
 DATE; 05/06/26
-not an art but like check out my epic cute and awesome saucers supermna figurine. jhes so cute and handsom e look at my son awhhh so cutie patootiee i love him. also yes, thats a stanley parable poster in the background
+not an art but like check out my epic cute and awesome saucers supermna figurine. hes so cute and handsom e look at my son awhhh so cutie patootiee i love him say hi hello to mysweet and good son. also yes, thats a stanley parable poster in the background
 <img width="3008" height="4016" alt="IMG_20260113_163704" src="https://github.com/user-attachments/assets/c749bf56-70fb-45c0-acf0-fa4e41f10346" />
