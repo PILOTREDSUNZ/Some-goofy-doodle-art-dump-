@@ -6,3 +6,5 @@ jst sharing some doodles and drawings of mine for others to see!!
 <img width="463" height="349" alt="Screenshot 2026-06-01 170340" src="https://github.com/user-attachments/assets/929afaf1-afa3-4a9b-bcd2-ab58f55ead85" />
 these were drawn with my broken mouse so these looks a bit wonky. Its hard drawing with a broken mouse sobs.
 MORE STUFFS WILL BE ADDED!!!
+<img width="398" height="315" alt="Screenshot 2026-06-04 214352" src="https://github.com/user-attachments/assets/f4031548-26f5-4da6-9809-4f3f96e3c567" />
+tavros from homestuck i drew for my friend. im not into homestuck or know anything about it. i jst made this for them lol
