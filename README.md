@@ -11,6 +11,8 @@ DATE; 01/06/26
 
 these were drawn with my broken mouse so these looks a bit wonky. Its hard drawing with a broken mouse sobs.
 MORE STUFFS WILL BE ADDED!!!
+
+also heh, supermanb and angry guy gardner and silly littnl Tommy and hus good doggie Sunkist!!
 -
 DATE; 05/06/26
 
