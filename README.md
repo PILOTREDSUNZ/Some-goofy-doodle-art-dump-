@@ -150,3 +150,19 @@ DATE; ???2025
 
 my old oc.... hes a old pony :3 
 -
+
+look at my tuff fit twin
+
+<img width="1536" height="2048" alt="pluh14" src="https://github.com/user-attachments/assets/53c8fd5f-f154-43d9-8286-b15a19e2f2a3" />
+
+<img width="1536" height="2048" alt="pluh12" src="https://github.com/user-attachments/assets/afcb9ecb-b63f-4d3b-a83f-8630a485b5ae" />
+
+IGNORE MY AWKWARD POSTURE IDK HOW TO POSE AND I HATE CAMERAS OKAY
+
+<img width="1536" height="2048" alt="pluh13" src="https://github.com/user-attachments/assets/b7dbcc11-0b19-4774-968c-7a1e1892507d" />
+
+the beanie up close
+
+<img width="1536" height="2048" alt="pluh11" src="https://github.com/user-attachments/assets/e21decf5-14b1-4d09-9554-a86856d680d3" />
+
+and without beanie on. anyway i had to put that red thing on my face cuzz yknow i still feel so unkawaii showing my face mrrrrpp
