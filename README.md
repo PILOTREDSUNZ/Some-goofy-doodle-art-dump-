@@ -150,3 +150,9 @@ DATE; ???2025
 
 my old oc.... hes a old pony :3 
 -
+
+<img width="1246" height="35" alt="image" src="https://github.com/user-attachments/assets/220db0fe-9cbc-481f-b5f1-0ff473398563" />
+
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=30&pause=1000&color=8E5504&width=1000&lines=Put+ur+texts+like+this.;This+will+be+the+second+sentence+of+the+gif)
+
+
